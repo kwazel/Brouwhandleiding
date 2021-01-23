@@ -1,6 +1,6 @@
 # De Thuisbrouwerij - Brouwhandleiding
 
-Bedankt dat u gekozen heeft voor Hembryggeriet (De Thuisbrouwrij). Na gaan we brouwen. Bier bestaat ui water, gerst, hop en gist. Brouwen gebeurt in 6 stappen:
+Bedankt dat u gekozen heeft voor Hembryggeriet (De Thuisbrouwrij). Na gaan we brouwen. Bier bestaat uit water, gerst, hop en gist. Brouwen gebeurt in 6 stappen:
 * Mouten
 * Maischen
 * Koken
