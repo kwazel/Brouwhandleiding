@@ -34,4 +34,18 @@ Bij het mouten worden de suikers uit het mout geëxtraheerd door deze in warm wa
 1. **Verwarm het moutwater:** Verwarm 7 liter water tot 78-80 graden in de kookpan; meet in het midden met de thermometer.
 2. **Voeg de pH5.2-stabilisator toe:** Leeg het zakje in het moutwater en roer door zodat de inhoud oplost. De pH-waarde van het mout wordt nu ongeveer 5,2.
 3. **Gebruik de brouwzak:** Als het moutwater 78-80 graden is, zet de warmtebron uit en trek de meegeleverde brouwzak rondom de rand van de kookpan. Druk deze in het water met de  pollepel en trek aan het koord zodat de zak op zijn plaats blijft in het water.
-4. Vermeng het mout met het water:
+4. **Vermeng het mout met het water:** Meng voorzichtig het mout (alle zakken mout samen) met water in de brouwzak door te roeren met een pollepel. Zorg er voor dat het mout goed met het water mengt en druk eventueel moutklonten kapot. Je moet nu een moutpapje hebben die in het midden van de pan 67°-68°C is. Als je een Stout brouwt dient dit 68°-69°C. te zijn. Het doel is de mouttemperatuur zo constant mogelijk te houden tijdens het mouten, maar deze kan tijdens het mouten dalen. Het kan helpen een handdoek of andere isolatie op en rond de pan te plaatsen.
+5. **Mouten**: Zet een timer op 75 minuten. Roer na 30 minuten een beetje door en warm 3L (of 5L indien mogelijk) maischwater op tot 78° C voor stap 2.
+
+## 2. Maischen - Tijd: circa 20 minuten
+Als het mouten klaar is is het tijd voor het maischen. Tijdens het maischen wordt het vocht (wort) uit de moutpap geperst zodat dit in de pan terecht komt. De suikers worden eenvoudigweg uit het mout verwijderd, en de pan wordt gevuld voor het koken.
+1. **Plaats de brouwzak op de pan:** Houdt een ovenrooster of zeef klaar. Sluit de brouwzak door middel van het snoer en til deze voorzichtig op boven de pan. Plaats het ovenrooster op de pan en zet de dichtgeknoopte brouwzak op het rooster/de zeef. Het wordt druppelt nu in de pan. Zet de kookplaat aan zodat het wort opwarmt voor stap 3. tijdens het maischen.
+2. **Maisch met het maischwater: Gebruik een maatbeker of andere houder en giet rustig en gelijkmatig 3L maischwater van 78°C. in cirkelbewegingen over de brouwzak op het rooster/de zeef. Pas op dat je niet over de rand van de pan giet. Het suiker dat zich nog in het mout bevindt wordt nu in de pan gespoeld. Na het maischen bevindt zich nog ongeveer 8L wort in de pan. Ga volgens onderstaande omschrijving verder:
+   
+   * *Indien je een ovenrooster gebruikt:* Ga door met maischen met 2 a 3L water (lauw of opgewarmd tot 78° C.) tot je 9,5L in de pan hebt.
+   * *Indien je een zeef gebruikt:* Haal de zeef met brouwzak van de pan, plaats deze op de 3L pan en maisch met 2 a 3L water (lauw of opgewarmd tot 78° C.) en giet dit in de kookpan tot je 9,5L hebt.
+
+3. Koken - Tijd: 60 minuten
+4. Koken, ook wel hopkoken of wortkoken genoemd, geeft het bier zijn bitterheid, smaak en aroma door het toevoegen van hop op verschillende momenten. Hop in het begin van het koken geeft bitterheid en hop aan het einde van de kooktijd geeft smaak en aroma. Koken reduceert de hoeveelheid wort met 1,5-2L per uur.
+   
+   **Kook het wort:** Met de kookplaat maximaal en terwijl je wacht tot het gaat koken; meet het hop en andere toevoegingen  volgens de 'kooktabel' in het recept voor uw bier. Als het wort kookt, voeg het hop en andere toevoegingen toe volgens de kooktabel in het recept.
