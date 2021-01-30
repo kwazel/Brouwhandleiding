@@ -48,4 +48,25 @@ Als het mouten klaar is is het tijd voor het maischen. Tijdens het maischen word
 3. Koken - Tijd: 60 minuten
 4. Koken, ook wel hopkoken of wortkoken genoemd, geeft het bier zijn bitterheid, smaak en aroma door het toevoegen van hop op verschillende momenten. Hop in het begin van het koken geeft bitterheid en hop aan het einde van de kooktijd geeft smaak en aroma. Koken reduceert de hoeveelheid wort met 1,5-2L per uur.
    
-   **Kook het wort:** Met de kookplaat maximaal en terwijl je wacht tot het gaat koken; meet het hop en andere toevoegingen  volgens de 'kooktabel' in het recept voor uw bier. Als het wort kookt, voeg het hop en andere toevoegingen toe volgens de kooktabel in het recept.
+   **Kook het wort:** Met de kookplaat maximaal en terwijl je wacht tot het gaat koken; meet het hop en andere toevoegingen  af volgens de 'kooktabel' in het recept voor uw bier. Als het wort kookt, voeg het hop en andere toevoegingen toe volgens de kooktabel in het recept.
+
+## 4. Afkoelen - Tijd: circa 30 - 60 minuten
+
+Let op: vanaf nu dient al het gereedschap en dienen alle oppervlakken die met het wort in contact komen gedesinfecteerd te zijn. 
+
+  **Koel het wort:** Vul de gootsteen met ijskoudwater en ijs of koelelementen en zet de pan met deksel in het koude water.  Laat het water rondom de pan circuleren zodat warmte uitgewisseld wordt.  Zo nu en dan in het water doorroeren helpt het afkoelproces ook. Als het wort onder de 25° C. is gekomen in het midden van de pan, ga door naar punt 5 (desinfecteer altijd de thermometer).
+
+## 5. Gisten
+1. **Giet het wort over in de gistemmer:** Leeg de gistemmer zonder tapkraan van de desinfectievloeistof en de toebehoren in de emmer met tapkraan (zorg ervoor dat de tapkraan fatsoenlijk dicht gedraait is, de dichtring dient aan de buitenkant van de emmer te zitten). Zet de rode sapzeefstelling boven de gistemmer en span de gedesinfecteerde sapzeefzak er in. Gebruik de meegeleverde gedesinfecteerde pomphendel en slang om het wordt over te pompen in de sapzeef. Roer door met de gedesinfecteerde lepel zodat het wort beter door de zeef vloeit. Neem de zeef af als alle wort er doorheen gelopen is.
+2. **Vul bij met koud water:** Zie het recept onder "alcoholsterkte"
+3. **Voeg het gist toe** Open het gistpakket en een schaar en strooi de hele inhoud gelijkmatig over het wort in de gistemmer. Druk het deksel er op (moet gedesinfecteerd zijn aan de binnenkant en bij de opening).
+4. **Voorzie het wort van zuurstof:** Was een duim in de desinfectievloeistof (dwz het verdunde desinfectiemiddel), druk deze op de opening in het deksel en schud de emmer gedurende 30 seconden flink door. Was de duim met water.
+5. **Installeer het waterslot:** Vul het waterslot to de max-lijn met disinfectievloeistof (dwz het verdunde disinfectiemiddel), zet het rode deksel er op en druk voorzichting het gistslot in de opening in het deksel.
+6. **Laat gisten:** Plaats de gistemmer op een donkere plaats bij ongeveer 17-21 graden gedurden 14 dagen (saison en belgisch bier kan op hogere temperatuur gisten). Optimaal is de eerste 3 dagen bij 18 graden gisten en daarna de temperatuur verhogen tot kamertemperatuur. Het kan geen kwaad het bier langer dan 14 dagen te laten gisten. Raadpleeg punt 6. om te zien of er nog iets speciaals met het bierd gedaan moet worden.
+
+## 6. Speciaal
+Zie het recept onder "Speciaal".
+
+## 7. Flessen
+Als het bier in totaal 14 dagen heeft gegist dan is het tijd op de flessen te vullen. Het koolzuur verkrijgen we door een bepaalde hoeveelheid suiker in de vorm van een suikerbeslag (prima genoemd) in de tapemmer toe te voegen.
+1. **Voorbereiding:** Voor het flessen is nodig de tapemmer met de tapkraan, de pomp, de flessenvuller, kristalsuiker, bruine glazen flessen, kroonkurken, het kroonkurkapparaat, desinfecteringsmiddel, een pollepel en een emmer.
