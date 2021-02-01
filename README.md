@@ -67,10 +67,15 @@ Let op: vanaf nu dient al het gereedschap en dienen alle oppervlakken die met he
 ## 6. Speciaal
 Zie het recept onder "Speciaal".
 
-## 7. Flessen
+## 7. bottelen
 Als het bier in totaal 14 dagen heeft gegist dan is het tijd om de flessen te vullen. Het koolzuur verkrijgen we door een bepaalde hoeveelheid suiker in de vorm van een suikerbeslag (prima genoemd) in de tapemmer toe te voegen.
-1. **Voorbereiding:** Voor het flessen is nodig de tapemmer met de tapkraan, de pomp, de flessenvuller, kristalsuiker, bruine glazen flessen, kroonkurken, het kroonkurkapparaat, desinfectievloeistof, een pollepel en een pan of emmertje.
+1. **Voorbereiding:** Voor het bottelen is nodig de tapemmer met de tapkraan, de pomp, de flessenvuller, kristalsuiker, bruine glazen flessen, kroonkurken, het kroonkurkapparaat, desinfectievloeistof, een pollepel en een pan of emmertje.
 2. **Maak een suikerbeslag (prima):** Zie het recept onder "Prima (suikerbeslag)". Het suiker veroorzaakt de koolzuur tijdens het gisten op de fles.
 3. **Desinfecteren:** Giet 5-10L water in de tapemmer met tapkraan en mix een maatlepel/dop (15mL) disinfectiemiddel. Desinfecteer de tapemmer (en tapkraan van binnen en buiten), pomp en slang (pomp de vloeistof meerdere keren rond, reinig de slang), pollepel, flessenvuller en kroonkurken. Gooi alle kroonkuren in een schaal met vloeistof. Reinig en desinfecteer iedere fles en flesopening door deze te vullen en in de desinfectievloeistof te dopen. Schude de fles en leeg deze - Klaar!
 *Tip: gebruik een flessenspoeler en flessenrek.*
-4. **Giet het bier in de tapemmer:** Giet alle desinfectievloeistof in een pan of emmertje en stop alle toebehoren hier in. Haal de gistemmer met het bier (hanteer deze zorgvuldig zodat de neerslag op de bodem blijft), neem het deksel er van af en zet de gistemmer op het aanrecht. Zet de tapemmer bijvoorbeeld op een stoel voor het aanrecht.  Zet de overhevelslang in de tapemmer. In de gistemmer, houdt de overhevelopening enkele centimeters boven
+4. **Giet het bier in de tapemmer:** Giet alle desinfectievloeistof in een pan of emmertje en stop alle toebehoren hier in. Haal de gistemmer met het bier (hanteer deze zorgvuldig zodat de neerslag op de bodem blijft), neem het deksel er van af en zet de gistemmer op het aanrecht. Zet de tapemmer bijvoorbeeld op een stoel voor het aanrecht.  Zet de overhevelslang in de tapemmer. In de gistemmer, houdt de overhevelopening enkele centimeters onder het bieroppervlak en pomp enkele keren tot het vanzelf stroomtvan de gistemmer naar de tapemmer. Trek de hevelaar precies op tijd op om te voorkomen dat je de neerslag van de bodem overhevelt - je wilt alleen helder bier meenemen.
+5. **Giet het prima er bij:** Giet rustig het afgekoelde suikerbeslag in de tapemmer en meng deze rustig maar grondig met een gedesinfecteerde pollepel.
+6. **Bottelen:** Desinfecteer de tapkraan, sluit de flessenvuller aan en open de kraan. Neem en fles en druk de flessenvuller op de bodem van de fles, als deze tegen de bodem van de fles drukt. Haal de fles naar beneden als het bier de flesopening nadert. Neem een gedesinfecteerde kroonkurk, zet deze op de flesopening en druk deze aan met het kroonkurkapparaat. Herhaal dit met alle flessen. Klaar!
+
+## 8. Gisten op fles
+Sla de flessen op in een donkere ruimte op kamerteperatuur gedurdende 14 dagen zo dat het koolzuur op kan bouwen. Hierna kan het bier gekoeld en genuttigd worden met vrienden. Het bier, de koolzuur en de schuimlaag ontwikkelen zich meer gedurende de komende weken. ALs je het bier schenkt, laat de laatse centimeter achter in de fles omdat deze gistneerslag bevat. Laat iets horen en vertel hoe het bier werd. Skål!
